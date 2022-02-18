@@ -4,7 +4,7 @@
 
 ### **Temática del sitio y público al que va dirigido:**
 
-- En **Catello Moda** vas a encontraras indumentaria femenina, masculina y de niños, siempre disponiendo de precios accesibles y de una buena calidad.
+- En **Catello Moda** vas a encontrar indumentaria femenina, masculina y de niños, siempre disponiendo de precios accesibles y de una buena calidad.
 
 - Nuestro sitio va dirigido  a un grupo de personas que valora la calidad y el diseño sobre encima de la moda rápida.
 
